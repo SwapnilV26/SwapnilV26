@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **swapnilvish2812@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1M6-XF-hm1wJVgny93iEdqUPiyP1u0V_n/view?usp=drive_link](https://drive.google.com/file/d/1M6-XF-hm1wJVgny93iEdqUPiyP1u0V_n/view?usp=drive_link)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1M6-XF-hm1wJVgny93iEdqUPiyP1u0V_n/view?usp=drive_link)
 
 - 💖 I am also interested in **Poetry and Shayari**
 
